@@ -1,4 +1,4 @@
 #### Hi
 #### my name is raghad Alhathloul 
-#### student of IT 
-#### you can reach me by email : raghad5515@gmail.com
+#### BA of IT 
+#### you can contact with me by email : raghad5515@gmail.com
